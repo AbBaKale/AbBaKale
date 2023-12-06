@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a CTS student
+Information Systems and Technologies students
 
 
 ## 🌐 Socials:
